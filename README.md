@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... (Java Programming)
 - 💞️ I’m looking to collaborate on ... (I want data regarding internships worldwide)
                                         (Interesting programs)
-- 📫 How to reach me ...  Reach me at @Shlokjeestudyacc@gmail.com
+- 📫 How to reach me ...  Reach me at @Shlokbubna316@gmail.com
 
 <!---
 
